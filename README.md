@@ -3,4 +3,5 @@
 ![](https://komarev.com/ghpvc/?username=cielking&color=663c59&label=guns&style=plastic&base=0)
 
 
-<sub>![#tadc #theamazingdigitalcircus](https://github.com/user-attachments/assets/0c534e72-7373-44f6-8a81-24e79f834473)
+<sub><img width="736" height="413" alt="#2018StartsNow___" src="https://github.com/user-attachments/assets/e9ccdb32-e15f-4363-bb5e-84bf6d2aae26" />
+
